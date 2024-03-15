@@ -1,2 +1,3 @@
 # valquiriavianayork850
-oii eu sou aValq
+oii eu sou a Valquiria
+carismática
